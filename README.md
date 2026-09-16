@@ -74,4 +74,4 @@ Coming progressively during the journey:
 
 ## 📫 Connect
 
-- LinkedIn: [Coming Soon]
+- LinkedIn: www.linkedin.com/in/nitesh-yadav-b62b4029a
